@@ -1,1 +1,1 @@
-KATSO VIDEO TÄSTÄ: https://www.youtube.com/watch?v=kcc2Gk5SkDE&ab_channel=EliasSepp%C3%A4
+KATSO VIDEO TÄSTÄ: https://www.youtube.com/watch?v=sjS7dHncf5M&ab_channel=EliasSepp%C3%A4
